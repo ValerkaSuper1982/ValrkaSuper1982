@@ -1,1 +1,0 @@
-# ValrkaSuper1982
